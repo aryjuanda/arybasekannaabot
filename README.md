@@ -1,1 +1,2 @@
-
+owner : wa.me/994408465157
+SC ORI KANNA CHAN
